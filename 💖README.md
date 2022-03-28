@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SkikenOFF, I'm a French Streamer/Ytber with 8K+ followers and I'm 16.
+- 🕴️ Owner of Sytaria Network a Minecraft project & "Champ de Tulipes" a Discord server with 930+ members.
+- 👀 I’m interested about everything that can learn me new knowledge
+- 🌱 I’m currently learning Python at school & Java at home
+- 📫 You can reach me by Discord: Skiken#3401
